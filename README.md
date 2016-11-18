@@ -1,1 +1,1 @@
-                                                          Hardware for zenfone5    
+Hardware for zenfone5                                  
